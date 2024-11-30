@@ -70,3 +70,47 @@ CHARLOTTE, terminando seu desenho, olha de relance para RICHARD. Ela hesita, com
 ### QUADRO 2
 
 RICHARD pega sua pasta e se levanta. Ele olha novamente para o quadro na parede, o que mistura geometria e abstração, antes de sair.
+
+## PÁGINA 5 – TRÊS QUADROS
+
+### QUADRO 1
+
+CHARLOTTE, no balcão, olha para o bloco de notas. Ela abre na página do desenho que fez, e sorri.
+
+### QUADRO 2
+
+RICHARD, na porta, olha para trás, para CHARLOTTE, mas sem prestar muita atenção. Ela acena com a cabeça, sorrindo.
+
+### QUADRO 3
+
+RICHARD, na rua, olha para o céu.
+
+## PÁGINA 6 – QUATRO QUADROS
+
+### QUADRO 1
+
+(No passado)
+
+RICHARD, ainda jovem, desenha em seu caderno. Ele desenha formas geométricas e prédios, mas com um toque de cor e abstração.
+
+### QUADRO 2
+
+Sua mãe entra na sala, se senta ao seu lado e observa o jovem desenhar.
+
+**MÃE:**
+
+Você tem talento, Richard. Não deixe ninguém dizer o contrário.
+
+### QUADRO 3
+
+De volta ao presente: RICHARD, da calçada em frente ao café, é removido forçosamente de seu devaneio por um carro que passa rápido, espirrando água suja em sua calça.
+
+### QUADRO 4
+
+RICHARD olha para a poça d'água que se formou, e vê seu reflexo. Hoje, ao invés de ficar irritado e reclamar, ele sorri com o reflexo dos prédios e nuvens misturados na poça que se forma.
+
+## PÁGINA 7 – TRÊS QUADROS
+
+### QUADRO 1
+
+CHARLOTTE, ainda no balcão.
